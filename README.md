@@ -1,5 +1,3 @@
-![Me](https://imgur.com/gallery/pudge-lbp5K9F)
-
 # Hi there, 👋 I'm Dolbaeb
 
 [Discord](https://discord.gg/ezKDWxpkzh) • [Telegram](https://t.me/OchenMerskiy)
