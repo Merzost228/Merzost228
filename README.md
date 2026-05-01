@@ -1,4 +1,4 @@
-![Me](https://imgur.com/gallery/pudge-lbp5K9F#hMmLpEr)
+![Me](https://imgur.com/gallery/pudge-lbp5K9F)
 
 # Hi there, 👋 I'm Dolbaeb
 
