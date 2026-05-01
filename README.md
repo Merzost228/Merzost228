@@ -1,4 +1,4 @@
-![Triangle](https://imgur.com/gallery/pudge-lbp5K9F)
+![Triangle](https://i.imgur.com/gallery/pudge-lbp5K9F)
 
 # Hi there, 👋 I'm Dolbaeb
 
