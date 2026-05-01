@@ -1,3 +1,5 @@
+![Pudge](https://media1.tenor.com/m/edntMFMKAOsAAAAd/pudge-пудж.gif)
+
 # Hi there, 👋 I'm Dolbaeb
 
 [Discord](https://discord.gg/ezKDWxpkzh) • [Telegram](https://t.me/OchenMerskiy)
