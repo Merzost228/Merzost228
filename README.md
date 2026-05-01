@@ -1,4 +1,4 @@
-![Triangle](https://tenor.com/ru/view/pudge-пудж-виляетпопой-виляет-дота-gif-27008808)
+![Me](https://i.imgur.com/hMmLpEr)
 
 # Hi there, 👋 I'm Dolbaeb
 
